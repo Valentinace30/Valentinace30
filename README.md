@@ -1,16 +1,18 @@
-## Hi there 👋
+Seja bem vindo meu amor 
 
-<!--
-**Valentinace30/Valentinace30** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Valentina Cestari**
 
-Here are some ideas to get you started:
+estou estudando na [alura](https://cursos.alura.com.br/loginForm)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Gosto de jogar handebol 
+
+quero ter um otimo futuro e ser bem sucedida 
+
+gosto de sair com as minhas amigas 
+
+entre em contato pelo (valentina.cardoso@escola.pr.gov.br)
+
+
+![](https://media.tenor.com/3ZKhtVl2qOcAAAAM/comemora%C3%A7%C3%A3o-yuri-alberto-2022-jogador-do-corinthians-yuri-alberto-comemorando-o-gol.gif)
+
+![](https://media.tenor.com/JYcL0xDS0KIAAAAM/besos-%C3%A1ngel-romero.gif)
